@@ -1,5 +1,5 @@
 # 💫 About Me:
-✦  Akira<br> ︲Estou ativamente trabalhando em dois projetos
+✦  Akira<br> ︲Estou ativamente trabalhando em varios projetos
 
 
 ## 🌐 Socials:
