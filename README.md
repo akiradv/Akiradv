@@ -1,5 +1,8 @@
 # 💫 About Me:
-✦  Akira<br> ︲Estou ativamente trabalhando em varios projetos
+✦ Sou o Akira, desenvolvedor focado em projetos open-source.
+
+🚀 Crio sites, aplicativos, jogos e ferramentas úteis para a comunidade.  
+💻 Sempre explorando novas tecnologias e aprimorando minhas habilidades.
 
 
 ## 🌐 Socials:
